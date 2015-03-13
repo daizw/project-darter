@@ -1,0 +1,5 @@
+http://en.wikipedia.org/wiki/Darter
+
+From Wikipedia, the free encyclopedia
+
+The darters or snakebirds are mainly tropical waterbirds in the family Anhingidae. There are four living species, three of which are very common and widespread while the fourth is rarer and classified as near-threatened by the IUCN. The term "snakebird" is usually used without any additions to signify whichever of the completely allopatric species occurs in any one region. It refers to their long thin neck, which has a snake-like appearance when they swim with their bodies submerged, or when mated pairs twist it during their bonding displays. "Darter" is used with a geographical term when referring to particular species. It alludes to their manner of procuring food, as they impale fishes with their thin, pointed beak. The American Darter (A. anhinga) is also known as Anhinga. It is called "water turkey" in the southern United States for little clearly apparent reason; though the American Darter is quite unrelated to the wild turkey, they are both large, blackish birds with long tails that are sometimes hunted for food.
